@@ -9,13 +9,13 @@ I'm 19 y/o so please if you are under 18 interact with caution
 
 BYI!!
 
-Feel free to sit close to me if I have c+h in my name, if I don't then please do not interact
+Feel free to sit close to me if I have c+h in my name, if I don't then please do not do that
 
 I'm usually offtab so you will need w2i otherwise I'll end up missing what was said
 
 I can be awkward around people if there's nothing to talk about
 
-You can usually find me only in 18+ server but I do play on safe only if my friends are on it
+You can usually find me only in 18+ server but I do occasionally play on safe server
 
 I block and hide freely!
 
