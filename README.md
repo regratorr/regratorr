@@ -2,9 +2,13 @@
 ───────────────────────────────────────────────────────────────────────────
 
 Vincent / Feofan but feel free to call me whatever my pony currently is ^^
+
 I'm 20 y/o so please if you are under 18 interact with caution
+
 ───────────
+
 BYI!!
+
 Feel free to sit close to me if I have c+h in my name, if I don't then please do not interact
 
 I'm usually offtab so you will need w2i otherwise I'll end up missing what was said
