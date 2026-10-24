@@ -21,6 +21,7 @@ I block and hide freely!
 
 ───────────
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=bxwflttjtz0p3lorh331gig9p&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=bxwflttjtz0p3lorh331gig9p&redirect=true)
 DNI!!
 
 Basic DNI criteria
