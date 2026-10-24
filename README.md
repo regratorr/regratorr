@@ -27,6 +27,8 @@ Basic DNI criteria
 
 People who do weird shit on pony town with other players even after being told to stop
 
+If you're coming up to me to flirt even when I tell you I'm taken
+
 Under 15
 
 ───────────────────────────────────────────────────────────────────────────
