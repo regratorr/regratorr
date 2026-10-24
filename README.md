@@ -17,4 +17,16 @@ I can be awkward around people if there's nothing to talk about
 
 You can usually find me only in 18+ server but I do play on safe only if my friends are on it
 
+I block and hide freely!
+
+───────────
+
+DNI!!
+
+Basic DNI criteria
+
+People who do weird shit on pony town with other players even after being told to stop
+
+Under 15
+
 ───────────
