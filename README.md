@@ -3,7 +3,7 @@
 
 Vincent / Feofan but feel free to call me whatever my pony currently is ^^
 
-I'm 20 y/o so please if you are under 18 interact with caution
+I'm 19 y/o so please if you are under 18 interact with caution
 
 ───────────
 
