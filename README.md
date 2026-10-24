@@ -29,7 +29,7 @@ People who do weird shit on pony town with other players even after being told t
 
 Under 15
 
-───────────
+───────────────────────────────────────────────────────────────────────────
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=bxwflttjtz0p3lorh331gig9p&redirect=true">
