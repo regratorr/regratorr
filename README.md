@@ -32,7 +32,7 @@ Under 15
 ───────────
 
 <p align="center">
-  <a href="https://spotify-github-profile.bxwflttjtz0p3lorh331gig9p.com/api/view?uid=bxwflttjtz0p3lorh331gig9p&redirect=true">
-    <img src="https://spotify-github-profile.bxwflttjtz0p3lorh331gig9p.com/api/view?uid=bxwflttjtz0p3lorh331gig9p&cover_image=true&theme=default&show_offline=true&background_color=35133e&interchange=false&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=true">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=bxwflttjtz0p3lorh331gig9p&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=bxwflttjtz0p3lorh331gig9p&cover_image=true&theme=default&show_offline=true&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=9725c1">
   </a>
 </p>
