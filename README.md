@@ -27,7 +27,7 @@ Basic DNI criteria
 
 People who do weird shit on pony town with other players even after being told to stop
 
-If you're coming up to me just to flirt even you're informed that I'm in a relationship
+If you're coming up to me just to flirt even when you're informed that I'm in a relationship
 
 Under 15
 
